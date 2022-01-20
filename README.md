@@ -9,6 +9,6 @@ Data Science and Business Analytics Task-1.
 #### #GRIPOCTOBER21 
 
 ### Demo
-[Demo](Demo: 
+[Demo](
 https://www.linkedin.com/posts/saurabh-k-134b37199_gripoct21-intern-internship-activity-6853201016171712512-nW-1/)
 
